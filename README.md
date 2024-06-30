@@ -1,0 +1,1 @@
+# Next24Tech-python_intern-kurupati_sowkhya
